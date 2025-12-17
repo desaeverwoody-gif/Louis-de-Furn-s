@@ -1,2 +1,2 @@
-# Louis-de-Furn-s
+# Louis-de-Furnès
 Het is een brocante/kunst winkel in veurne.
